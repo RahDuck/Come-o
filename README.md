@@ -1,4 +1,4 @@
-### Boas vindas ao meu peril 🖤
+### Boas vindas ao meu perfil 🖤
 
 - Utilizo essse espaço para oganizanar minhas ideias e projetos
 
